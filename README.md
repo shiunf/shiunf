@@ -1,16 +1,16 @@
-## Hi there 👋
+√天堂中文www官网在线国产一卡二卡四卡高清乱码
 
-<!--
-**shiunf/shiunf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+**<a href="http://www.baidu.com/link?url=7_xtFUWki7hexbSrF9U18DvNUoYAjH8P5i8sQYawypq&wd">→→最/新/观/看/入/口←←</a>**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+    “等等，压力更大？”刘昴星忽然好像想到了什么。
+
+    想起了木久知园果在自己第一天赶到时，表现得患得患失的样子，还有担心拖累自己“实地研修”成绩的话，刘昴星忽然想到，会不会木久知园果之所以会紧张，不是因为她自己，而是在担心“其他人”？
+
+    担心影响刘昴星的“实地研修”成绩只是一方面，或许还在担心因为自己的失误，会令蝶野泉、香织的努力也白费，甚至在担心角崎泷又有来欺负她的借口了、学院会不会失望……
+
+    换一个角度来说，也是因为大家对她的期待太高了！
+
+    木久知园果只是一名才18、9岁，性格还很内向的女孩而已，学院这么急着将她作为“虽然年轻却可以和专业星级厨师抗衡的怪物”宣传真的好吗？
